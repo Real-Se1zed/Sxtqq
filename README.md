@@ -1,3 +1,3 @@
-### Hi there, i'm Sxtq 👋
+### Hi there, i'm Se1zed 👋
 
 
